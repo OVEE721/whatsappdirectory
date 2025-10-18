@@ -1,0 +1,2 @@
+# whatsappdirectory
+NA
